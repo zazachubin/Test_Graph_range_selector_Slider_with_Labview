@@ -1,4 +1,0 @@
-hi everyone
-
-
-zaza chubinidze
